@@ -1,4 +1,4 @@
-# 
+# Seguro Revo Uninstaller modelos para Mac OS | Exclusivo Revo Uninstaller modelos para PC Windows. Com backup de dados e varredura rapida — otimizado para máximo desempenho em cada plataforma.
 
 
 
